@@ -1,1 +1,1 @@
-Mi nombre es Daniella Ximena Cabrera Gaytán Daniella Ximena, tengo 18 años y estoy cursando la carrera de ingenieria geofisica 
+Mi nombre es Daniella Ximena Cabrera Gaytán Daniella Ximena, tengo 18 años y estoy cursando la carrera de ingenieria geofisica, en las imagenes podemos ver a la tierra y la propagación de ondas de un sismo atraves de las capas de la tierra
